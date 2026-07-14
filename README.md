@@ -3,6 +3,7 @@
 🎓 17 years old, from Italy 🍕
 
 ✝️ Roman Catholic, strong in my faith
+
 🏔️ Hiker
 🚴 Cyclist
 🗳️ Political enthusiast
