@@ -1,6 +1,7 @@
 # Ciao, I'm Emanuele 👋🇮🇹
 
 🎓 17 years old, from Italy 🍕
+
 ✝️ Roman Catholic, strong in my faith
 
 - 🏔️ Hiker
