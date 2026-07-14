@@ -31,4 +31,4 @@
 
 📫 Feel free to check out my repos and reach out — always happy to connect!
 
-### ⭐ *"Deus mecum, PLUS ULTRA!"*
+⭐ ***Deus mecum, PLUS ULTRA!***
