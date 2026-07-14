@@ -31,4 +31,4 @@
 
 📫 Feel free to check out my repos and reach out — always happy to connect!
 
-⭐ *"Faith, code, and the open road."*
+⭐ *"Deus mecum, PLUS ULTRA!"*
